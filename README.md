@@ -1,1 +1,1 @@
-Soy un persona estudiosa ,me gusta estar en constante desarrollo personal, soy muy comprometida con mis proyectos, trabajo muy bien en equipo, desarrollo mis trabajos de una manera creativa y soy muy perseverante con lo que quiero lograr.
+soy desarrolladora web front end, soy una persona responsable, trabajo muy bien en equipo, soy perseverante, soy muy comprometido con mis trabajos y logro adaptarme bien en los entornos en donde me escuentre.
