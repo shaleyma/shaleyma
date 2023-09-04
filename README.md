@@ -1,0 +1,1 @@
+Soy un persona estudiosa ,me gusta estar en constante desarrollo personal, soy muy comprometida con mis proyectos, trabajo muy bien en equipo, desarrollo mis trabajos de una manera creativa y soy muy perseverante con lo que quiero lograr.
